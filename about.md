@@ -3,6 +3,8 @@ layout: default
 title: pri
 ---
 
+# About
+
 I kinda do art things. I do kinda art things. I do art kinda things.
 I do art things kinda.
 
