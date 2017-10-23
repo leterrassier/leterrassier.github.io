@@ -5,7 +5,7 @@ date: 2017-10-22
 ---
 
 It's been roughly a year since I started DJing at
-Hollow Earth Radio](http://www.hollowearthradio.org/) and I think it would be
+[Hollow Earth Radio](http://www.hollowearthradio.org/) and I think it would be
 interesting to go back and see how I got to now from then. It's a little more
 interesting now than it would be at the end of the year when people normally
 do these kinds of things, because then it will just be trite and boring because
