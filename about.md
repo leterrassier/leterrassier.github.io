@@ -1,6 +1,6 @@
 ---
 layout: default
-title: pri
+title: About
 ---
 
 # About
