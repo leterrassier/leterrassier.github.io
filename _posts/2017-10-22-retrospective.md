@@ -52,7 +52,7 @@ later that it was the name of a show from another radio station that roughly
 had the same theme and one that I had listened to before. So, so embarrassing.
 Thematically, it was more conceptual -- shows focused on an idea and building up
 from there. I remember a fun one where I played the audio from a number of
-unboxing videos -- all with the name bands diligently bleeped out by hand. I
+unboxing videos -- all with the name brands diligently bleeped out by hand. I
 finally did do a collage set of, again, audio from videos -- this time, from
 some guy hiking in, usually, a forest. That was kinda interesting. Or, I'd
 select a theme and find a bunch of songs that fit the theme. Notoriously, I once
